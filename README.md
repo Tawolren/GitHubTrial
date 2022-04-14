@@ -6,4 +6,4 @@
 
 ♠ LinkedIn: https://www.linkedin.com/in/uğurkan-argali-69a731183/
 
-                                                          ♪♫ Everything is an Art.. ♫♪
+                                          ♪♫ Everything is an Art.. ♫♪
